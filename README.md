@@ -19,4 +19,4 @@
 &nbsp;
 [![Discord](https://img.shields.io/badge/Discord-%235865F2.svg?style=flat&logo=discord&logoColor=%235865F2&logoSize=auto&labelColor=FFFFFF)](https://discord.com/users/603228801337393172)
 
-I love cars more than anything else, excluding my partner
+You don't need to know too much
